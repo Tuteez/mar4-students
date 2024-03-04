@@ -1,0 +1,1 @@
+Augsutinas .txt
